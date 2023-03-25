@@ -11,12 +11,6 @@ You can click the Preview link to take a look at your changes.
 Hi, I am Kebby Zumani, from Zambia.
 I am the Founder and CEO of 
 Zumtech Technologies Limited, a 
-private technology start up company
-limited by shares. I am basically 
-Looking for software developers to 
-collaborate with on our latest project 
-we plan to embark on next week.
-My WhatsApp number is +260965585121.
-Our email is zumtech.company@gmail.com
+private technology start up company.
 
 Glad to be here.
